@@ -1,6 +1,6 @@
 🔮 Something like networks
 
-* **Linedin -** https://www.linkedin.com/in/trofim-markelov-539687255
-* **Telegram -** markelovtrofim
+* **Telegram -** @markelovtrofim
 * **Mail -** markelovtrofim@gmail.com
+* **Linedin -** https://www.linkedin.com/in/trofim-markelov-539687255
 * **Website/Business -** [MT](https://youtu.be/dQw4w9WgXcQ)
